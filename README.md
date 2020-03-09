@@ -8,7 +8,7 @@
 sebaiknya anda pelajari tentang Config,line Liff dan lainya.  
 Karena suatu saat nanti ketika botnya sekarat, 
 anda tidak kebingungan ditengah jalan 😄😀 
-bergabunglah disalahsatu komunitas bot.OK 😂
+bergabunglah disalahsatu komunitas bot.OK 😂 
 #======================#
 ## WROKS 100 %
 #DPK BOTS
